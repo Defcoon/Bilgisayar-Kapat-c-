@@ -1,0 +1,1 @@
+# Bilgisayar-Kapat-c-
